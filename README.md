@@ -25,4 +25,4 @@ Children’s Privacy
 TYR is not directed at children under 13 and does not knowingly collect personal data from children.
 Contact
 If you have questions about this Privacy Policy, you can contact:
-Email: support@bhavikpatel.net
+Email: b@bhavikpatel.net
